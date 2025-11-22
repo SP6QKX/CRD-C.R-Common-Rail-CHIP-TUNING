@@ -17,8 +17,19 @@ Thanks and Greetings
 <img src="https://raw.githubusercontent.com/SP6QKX/CRD---C.R-Common-Rail-CHIP-TUNING/master/4.jpg">
 <img src="https://raw.githubusercontent.com/SP6QKX/CRD---C.R-Common-Rail-CHIP-TUNING/master/5.jpg">
 
-ZWROT GOTÓWKI - CASHBACK  $$$$$  https://tiny.pl/9gh2m .
 
-SHOPPING CASHBACK - Register and Get BONUS  $$$ .
+More information on email  s p 6 q k x @ p o c z t a . f m
 
-Otrzymasz 10zł za otwarcie konta CashBack za zakupy w Internecie !
+[https://qrz.com/DB/SP6QKX
+
+https://www.facebook.com/sp6qkx
+
+https://www.winsell.pl
+
+https://www.sp6qkx.winsell.pl
+
+That all folks :) 
+
+Thanks and Greetings 
+
+vy73 Daniel SP6QKX )
